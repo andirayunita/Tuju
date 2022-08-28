@@ -1,3 +1,3 @@
-# project-7
+# project-7 ( group 8)
 
 #
